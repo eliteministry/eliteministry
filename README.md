@@ -4,7 +4,7 @@
 
 <div align="center">
 
-![](https://iili.io/K71q419.png)
+![](https://iili.io/KG4pOhb.png)
 
 <div align="center">
 
