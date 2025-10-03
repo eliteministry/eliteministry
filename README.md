@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<sub> [rentry](https://rentry.co/fwssy) . [guns.lol](https://guns.lol/effedgy) . [ata](https://fussy.atabook.org/)
+<sub> [rentry](https://rentry.co/fwssy) . [guns.lol](https://guns.lol/fwanged) . [ata](https://fussy.atabook.org/)
 
 ![](https://komarev.com/ghpvc/?username=spilledgutss&color=660000&label=lovebirds)           
 <div align="center">
