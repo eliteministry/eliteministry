@@ -1,13 +1,3 @@
-<div align="center">
-
-<sub> _ _⠀⠀𓏏𓏏⠀⠀simon⠀⠀ ╱⠀⠀ hound  ,,
-
-<div align="center">
-
-![](https://iili.io/KG4pOhb.png)
-
-<div align="center">
-
 <sub> [rentry](https://rentry.co/fwssy) . [guns.lol](https://guns.lol/fwanged) . [ata](https://fussy.atabook.org/)
 
 ![](https://komarev.com/ghpvc/?username=spilledgutss&color=660000&label=lovebirds)           
