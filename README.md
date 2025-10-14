@@ -1,4 +1,8 @@
+<div align="center">
+
 <sub> [rentry](https://rentry.co/fwssy) . [guns.lol](https://guns.lol/fwanged) . [ata](https://fussy.atabook.org/)
+
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=spilledgutss&color=660000&label=lovebirds)           
 <div align="center">
